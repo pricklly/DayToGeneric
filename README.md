@@ -7,3 +7,5 @@ bad tickets and renegard sport.
 
 
 ha ha ha.  ok it's goold line for you..  ever where.  and mee too.  looking you yaes.  
+see too Vasiliy trooble
+it's day when door bee open for you
